@@ -1,1 +1,1 @@
-# luckmoshy.github.io
+# luckmoshy
